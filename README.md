@@ -1,11 +1,8 @@
 # new1
-iji
-jkjk
-089
+i
+jnj
+l
+86
+knk
+0
 -
-90
-kjk
-jhj
-87
-jkj
-+
